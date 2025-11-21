@@ -15,4 +15,12 @@ CameraMan follows Sonya, a luddite, radical hacker who has since retired and sim
 People have allegedly been killing themselves after wiping their social medias and leaving the sole last selfie #cheese. Sonya starts seeing crazy shit.   
 
 
-Smile x It Follows x Nightmare On Elm Street 
+Smile x It Follows x Nightmare On Elm Street
+
+ideas for next draft
+
+Maybe it's a polaroid camera, there could be some good jokes in there
+
+
+
+ 
